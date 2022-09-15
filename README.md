@@ -1,1 +1,1 @@
-Hey, I'm Veliana this is just where I put some of my code.
+Hey! I'm Veliana, or Vel, either works. I love computers, and learning about how they work. I also love designing them, and programming for them, if you ever are interested in talking to me, feel free to, just don't be transphobic/homophobic/racist/bigoted, as that makes me very uncomfortable.
